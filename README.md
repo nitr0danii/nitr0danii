@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @nitr0danii
+- 👀 I’m interested in Gaming
+- 🌱 I’m currently learning Python
+- 📫 How to reach me: duduattack@gmail.com
+- 😄 Pronouns: He/Him
+- ⚡ Fun fact: I have the aspeger syndrome
